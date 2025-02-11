@@ -1,4 +1,4 @@
-BEST SHII https://blooketbot.glitch.me
+
 -- proxys --
 https://ixl.mom
 https://ixl.lol
